@@ -7,7 +7,12 @@
 <!-- message -->
 
 <p align="center">" The performance that will soon echo through the City will be my journey to seek the meaning to live... and be the proof of my life. "</p>
+
 <p align="center">— Argalia.</p>
+
+<!-- link!!! :3 -->
+
+> [⠀⠀ 🎲⠀⠀'⠀⠀♪⠀⠀⠀.⠀⠀[atabook](https://xiaoozhengzhou.atabook.org) ⠀⠀]
 
 <!-- hi spotify here -->
 
