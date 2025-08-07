@@ -4,15 +4,22 @@
 
 <img width="671" height="331" alt="Untitled110_20250807192951" src="https://github.com/user-attachments/assets/fef9ccba-ffd2-43f6-bf84-b296fabb50a9" />
 
-<!-- message -->
+<!-- blinkies :33 -->
 
-<p align="center">" The performance that will soon echo through the City will be my journey to seek the meaning to live... and be the proof of my life. "</p>
+[![blinkiesCafe-sh (1)](https://github.com/user-attachments/assets/c37f0661-dd92-41c6-af60-84b0988110db)](https://libraryofruina.wiki.gg/wiki/Argalia)
 
-<p align="center">— Argalia.</p>
+<!-- quote -->
+
+<p align="center">" ᴛʜᴇ ᴘᴇʀꜰᴏʀᴍᴀɴᴄᴇ ᴛʜᴀᴛ ᴡɪʟʟ ꜱᴏᴏɴ ᴇᴄʜᴏ ᴛʜʀᴏᴜɢʜ ᴛʜᴇ ᴄɪᴛʏ ᴡɪʟʟ ʙᴇ ᴍʏ ᴊᴏᴜʀɴᴇʏ ᴛᴏ ꜱᴇᴇᴋ ᴛʜᴇ ᴍᴇᴀɴɪɴɢ ᴛᴏ ʟɪᴠᴇ... ᴀɴᴅ ʙᴇ ᴛʜᴇ ᴘʀᴏᴏꜰ ᴏꜰ ᴍʏ ʟɪꜰᴇ. "</p>
 
 <!-- link!!! :3 -->
 
-> [⠀⠀ 🎲⠀⠀'⠀⠀♪⠀⠀⠀.⠀⠀[atabook](https://xiaoozhengzhou.atabook.org) ⠀⠀]
+> 💤⠀⠀.⠀⠀[atabook](https://xiaoozhengzhou.atabook.org)
+
+<!-- hiii waves -->
+<p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌</p>
+
+<img width="671" height="115" alt="Untitled114_20250808023248" src="https://github.com/user-attachments/assets/cdcb81dc-aecb-4bb9-b91b-ba750f5ed686" />
 
 <!-- hi spotify here -->
 
